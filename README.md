@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ryxn2117
+- 🌱 I’m currently learning c++
+- 💞️ I’m looking to collaborate with nobody, I love my gf
+- 📫 How to reach me ryan_cabungcal@icloud.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have a 10/10 gf
